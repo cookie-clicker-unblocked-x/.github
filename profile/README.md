@@ -98,4 +98,4 @@ Since its release, Cookie Clicker has become a cultural phenomenon, inspiring co
 
 Cookie Clicker is much more than a game about baking cookies. It’s a testament to the power of simple yet engaging mechanics combined with humor and creativity. Whether you’re a casual gamer looking for a stress-free pastime or a strategy enthusiast seeking optimization challenges, Cookie Clicker offers endless hours of entertainment.  
 
-So, what are you waiting for? Start clicking, unlock achievements, and become the ultimate cookie tycoon! Happy baking!
+So, what are you waiting for? Start clicking, unlock achievements, and become the ultimate cookie tycoon! Happy baking! cookie clicker unblocked !
